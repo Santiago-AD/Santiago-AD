@@ -1,0 +1,6 @@
+-  Hi, I’m @Santiago-AD
+-  I’m interested 
+-  I’m currently learning
+-  I’m looking to collaborate on
+-  I'm Electronic Engineer
+-  In search of programming
